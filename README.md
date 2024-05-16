@@ -2,7 +2,7 @@
 ## **sou muito diva**
 ![](https://media.tenor.com/gyh4Gmi9wPwAAAAM/orochinho-rage.gif)
 - 👋 oi, eu sou @globglogabgalablindo
-- /:+1:O MEU [EMAIL](LETHICIA.CRUZ@ESCOLA.PR.GOV.BR)
+- :+1:O MEU [EMAIL](LETHICIA.CRUZ@ESCOLA.PR.GOV.BR)
 - 👀 estou interessada em: eh o manikas hehe
 - 🌱 atualmente estou aprendendo: eh o manikas hehe
 - 💞️ estou procurando colaborar: eh o manikas hehe
